@@ -1,1 +1,1 @@
-Olivia Woodruff CSS Codecademy Project
+O.W. Project
